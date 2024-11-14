@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning Python
 - 🌱 I’m currently learning CSS
 - 💞️ I’m looking to collaborate on making webpages
-- 📫 How to reach me wendellapricotjam@gmail.com
+- 📫 How to reach me, OUTERSPACE
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm cool
 
